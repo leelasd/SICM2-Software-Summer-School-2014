@@ -3,7 +3,7 @@
 ##### Advisor: William L. Jorgensen
 ##### Year of Study: 2nd
 
-Updated: 7/15/14
+Updated: 8/21/14
 
 Contact: leela.dodda@yale.edu
 
