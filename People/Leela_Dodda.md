@@ -1,7 +1,7 @@
 ## Leela S. Dodda
 ##### University: Yale University
 ##### Advisor: William L. Jorgensen
-##### Year of Study: 1st
+##### Year of Study: 2nd
 
 Updated: 7/15/14
 
